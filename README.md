@@ -13,7 +13,7 @@ Ragebaiters, I will sit on you until you get a sense of human rights in you. Jok
 
 Status matters!! (mostly set as busy, which means I'm there).
 
-Usually not opening convo first, awkward, you see. Would yap a lot if given opportunity tho-
+Usually not opening convo first, awkward, you see. Would yap a lot if given opportunity
 
 Wandering around, mostly at TWST tree
 
