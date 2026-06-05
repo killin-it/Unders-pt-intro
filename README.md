@@ -11,7 +11,7 @@ Play both on mobile & pc.
 
 Ragebaiters, I will sit on you until you get a sense of human rights in you (Joke aside, I block freely).
 
-Status matters!! (mostly set as busy, which means I'm there).
+Status matters!! (mostly set as busy, which means I'm there but multi-tasking).
 
 Usually not the one to open a conversation first. Awkward, you see-
 
